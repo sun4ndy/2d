@@ -1,1 +1,1 @@
-https://sun4ndy.github.io/2d/
+Play here: https://sun4ndy.github.io/2d/
